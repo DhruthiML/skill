@@ -1,0 +1,2 @@
+# skill
+i am studing
